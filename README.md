@@ -36,3 +36,12 @@ Bulbasaur Ivysaur Venusaur Charmander Charmeleon Charizard Squirtle Wartortle Bl
 
 ### Governator / Hodor
 Bring your toy back to the carpet. Bring it back to the carpet. Traffic. It's just a scratch. Get down. I'm not a pervert. I was just looking for Turboman doll. Fugettit, I'm not going to sit on your lap. You got what you want. Give these people air. I've seen you before." "Hodor! Hodor hodor, hodor hodor hodor? Hodor! Hodor hodor, hodor hodor hodor? Hodor! Hodor hodor, hodor; hodor hodor hodor hodor? Hodor, hodor... Hodor hodor hodor? Hodor hodor HODOR! Hodor hodor... Hodor hodor hodor."
+
+### Rick and Morty
+Listen to your sister Morty; to live is to risk it all; otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. Oh, I'm sorry, Jerry, I didn't see you there, how much of that did you hear? Not MY fault this is happening. I couldn't hear you over my own screaming. We've talked about this! Don't even trip about your pants, dawg. We got an extra pair right here.
+
+Principal Vagina here, don't let the name fool you; I'm very much in charge. Reminding you that tonight is our annual flu season dance. I don't know how many times I have to say this, but if you have the flu, stay home. The flu season dance is about awareness, not celebration. You don't bring dead babies to Passover. And that's why I always say 'Shumshumschilpiddydah!' Why are you doing this bit? We're gonna die. I mean, why would a poptart want to live inside a toaster, Rick? I mean, that would be like the scariest place for them to live. You know what I mean?
+
+Wow, so your origin is what? You fell into a vat of redundancy? Really, you're gonna pull that move? I guided your entire civilisation. Your people have a holiday named ricksgiving. They teach kids about me in school. Morty, you know outer space is up right? You ask alotta questions Morty, not very charismatic of you.
+
+Ooh, your little flappy doodles are twitching. Does that mean you're aroused, or did you just get a signal that one of your buddies found a grape? Aw, man! I really liked this life! Well, at least I didn't really crap my pants. Allahu blehhhh Akbar! Rick, is this a Saw thing? Are you seriously Sawing the Vindicators?
